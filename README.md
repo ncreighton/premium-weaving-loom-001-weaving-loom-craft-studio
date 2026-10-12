@@ -1,0 +1,2 @@
+# premium-weaving-loom-001-weaving-loom-craft-studio
+Tired of losing track of your weaving projects, yarn stash, and technique notes across scattered notebooks and apps? The Weaving &amp; Loom Craft Studio - Notion Template brings order to your creative chaos, so you can focus on the loom, not the logistics.  This all-in-one Notion template replaces messy binders and spreadsheets with a centralized studi
